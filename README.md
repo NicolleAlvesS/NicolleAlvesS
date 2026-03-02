@@ -1,6 +1,7 @@
-## Oie me chamo Nicolle✨
-
-- 📖 Estou no ensino médio com tec. em Desenvolvimento de Sistemas
+## Oie me chamo Nicolle♡ ✨
+<div align= "center">
+──── ୨୧ ────
+<div align= "center">- 📖 Estou no ensino médio com tec. em Desenvolvimento de Sistemas
 - 💻 O conteúdo que mais gostei foi progamar em python
 - ⚡ Os meus Hobbys favoritos são fazer academia, ler e assistir filmes 
   💪📚🍿
